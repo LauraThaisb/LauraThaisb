@@ -1,5 +1,6 @@
 - 👋 Oi, Eu sou @LauraThaisb
 - 👀 Eu me interesso por tecnologia e qualidade
+- Quality Engineer | CTFL
 - https://medium.com/@laurabrasiloliveira
 - https://www.linkedin.com/in/laura-oliveira-5603b9a3/
 
